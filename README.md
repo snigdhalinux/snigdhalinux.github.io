@@ -1,1 +1,0 @@
-# snigdhalinux.github.io
